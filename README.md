@@ -1,0 +1,3 @@
+- 👋 Hi, ywacch
+- 👀 I’m interested in music
+- 🌱 I’m currently learning French language 
